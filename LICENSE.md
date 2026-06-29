@@ -1,4 +1,4 @@
-#  
+#  Experience grow a garden like never before with grow a garden vip Script, the #1 Script. Includes auto-farm and esp for unbeatable performance.
 
 
 
